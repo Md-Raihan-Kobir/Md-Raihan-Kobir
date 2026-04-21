@@ -1,3 +1,4 @@
+<img width="2035" height="773" alt="wordpress,marketing,ads campaign,meta pixel tracking" src="https://github.com/user-attachments/assets/acc4a2a3-ba9b-4396-962b-7e6a0778b242" />
 ## Hi there 👋
 
 <!--
